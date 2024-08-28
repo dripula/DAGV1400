@@ -1,1 +1,1 @@
-# Welcome to Big Hoss
+# Welcome to DAGV1400 FALL 2024
